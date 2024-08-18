@@ -1,3 +1,1 @@
-# thi
-# baigiuakhoa
 # baigiuakhoa
